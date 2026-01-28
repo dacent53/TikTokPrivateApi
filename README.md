@@ -5,7 +5,6 @@ mass registration of tik tok accounts, tik tok likes, comments, tik tok latest v
 **Contact for api :** [https://t.me/dacent53](https://t.me/dacent53)
 
 ## telegram: @dacent53
-
 # tiktok-mass-creator-accounts
 mass registration of tik tok accounts, tik tok likes, comments, tik tok latest version
 ## tiktok API
