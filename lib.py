@@ -3,8 +3,8 @@ mass registration of tik tok accounts, tik tok likes, comments, tik tok latest v
 
   
 ### contact me
-**Contact for api :** [https://t.me/dacent53](https://t.me/dacent53)
-## telegram: @dacent53
+**Contact for api :** [https://t.me/dacent87](https://t.me/dacent87)
+## telegram: @dacent87
 
 # tiktok-mass-creator-accounts
 mass registration of tik tok accounts, tik tok likes, comments, tik tok latest version
@@ -35,5 +35,5 @@ mass registration of tik tok accounts, tik tok likes, comments, tik tok latest v
 
 
 ### contact me
-**Contact for api :** [https://t.me/Neo_Galaxy](https://t.me/Neo_Galaxy)
-## telegram: @Neo_Galaxy
+**Contact for api :** [https://t.me/dacent87](https://t.me/dacent87)
+## telegram: @dacent87
